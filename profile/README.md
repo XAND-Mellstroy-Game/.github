@@ -1,4 +1,7 @@
 <strong>В Mellstroy Game <strong>Промокод <strong>XAND</strong> дает бонус 550% и 400 фриспинов на первые 4 депозита.</strong></strong>
+<a href="https://clck.ru/3RJNPx" target="_blank">
+  <img src="https://img.shields.io/badge/Перейти%20в%20МеллСтройГейм-green?style=for-the-badge" />
+</a>
 
 <a class="myButton" href="https://clck.ru/3RJNPx">Перейти в Меллстрой Гейм с промо</a>
 
